@@ -1,1 +1,1 @@
-![yay](https://files.catbox.moe/he65vd.gif)
+![](https://files.catbox.moe/he65vd.gif)
